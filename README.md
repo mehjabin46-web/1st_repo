@@ -1,3 +1,3 @@
 # 1st_repo
 <br>
-author- Maisha Mehjabin
+author- Maisha Mehjabin Mahi
